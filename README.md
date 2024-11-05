@@ -12,6 +12,8 @@ Aqui estão algumas ideias para você começar:
 - 📫 Como entrar em contato comigo: instagram :mthr.zz
 - ⚡ Curiosidade: sou craque no futebol e torcedor do Athletico-PR
 -->
+
+  
   ![](https://media.tenor.com/CUyGUN-fam8AAAAM/ronaldinho-keep-talking.gif)
   ![](https://media.tenor.com/TGiblONvolsAAAAM/vitor-roque-vitor-roque-tigrinho.gif)
   ![](https://media.tenor.com/YzniNQWV3r8AAAAM/giyu-tomioka.gif)
