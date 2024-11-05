@@ -16,6 +16,8 @@ Aqui estão algumas ideias para você começar:
   ![](https://media.tenor.com/CUyGUN-fam8AAAAM/ronaldinho-keep-talking.gif)
   ![](https://media.tenor.com/TGiblONvolsAAAAM/vitor-roque-vitor-roque-tigrinho.gif)
   ![](https://media.tenor.com/YzniNQWV3r8AAAAM/giyu-tomioka.gif)
+![](https://media.tenor.com/Al4SzhEF_vIAAAAM/gojo-satoru.gif)
+![](https://media.tenor.com/D6vff8zdCfoAAAAM/madara-shisui.gif)
 
 
-https://cursos.alura.com.br/corp/pensamento-computacional-1-serie-111018-p695562
+[alura](https://cursos.alura.com.br/corp/pensamento-computacional-1-serie-111018-p695562)
